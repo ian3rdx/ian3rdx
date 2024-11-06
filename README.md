@@ -1,4 +1,4 @@
-# Hi there, I'm Julian - aka [Ian](https://www.linkedin.com/in/julian-hasibuan/) 👋
+# Hi there, I'm [Julian](https://www.linkedin.com/in/julian-hasibuan/) 👋
 ## About me:
 - 🔭 I’m currently working as Digital Marketing
 - 🌱 I’m currently learning Video Editor and EDM Music Remix
